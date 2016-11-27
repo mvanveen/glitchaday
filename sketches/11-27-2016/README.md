@@ -13,7 +13,7 @@ it is raining.  I grew up here.  We're notorious for our perfect weather.
 The highways break down into a post-apocaylptic pile up as drivers slip off
 of oily the assphault which is washing off months of accumulated hydrocarbons.
 
-Yes, the weather here is ideal.  Even rainy days like this would be considered 
+Nevertheless, the weather here is pretty ideal.  Even rainy days like this would be considered 
 mild in any other locale.  Palm trees in the rain remind me of the holidays.
 
 So it is palm trees that speak to me tonight.
